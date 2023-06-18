@@ -1,6 +1,0 @@
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/tennessee-public/blob/main/R1_008.flv.png)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/tennessee-public/blob/main/R1_041.flv.png)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/tennessee-public/blob/main/R1_067.flv.png)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/tennessee-public/blob/main/R1_085.flv.png)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/tennessee-public/blob/main/R1_088.flv.png)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/tennessee-public/blob/main/R2_076.flv.png)
